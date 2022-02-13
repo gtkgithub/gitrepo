@@ -1,1 +1,1 @@
-REMOVED EVERYTHING
+Updated Index.html page , pls review 
